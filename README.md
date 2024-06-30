@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheVAClick
+- 👋 Hi, I’m Admir from @TheVAClick
 - 👀 I’m interested in helping other Virtual Assistants start their own small work from home routine and work on their own pace.
 - 🌱 I’m currently learning how to cook delicious food for my wife and I :D
 - 💞️ I’m looking to collaborate on creating a VA Network around the globe for Virtual Assistants.
